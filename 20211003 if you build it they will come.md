@@ -1,5 +1,6 @@
-This morning as I prepare to venture out into the world and fulfill the responsibilities I've chosen for myself it seems appropriate to mention why I chose the responsibility of bitcoin brunch.
-
+This morning as I prepare to venture out into the world and fulfill the
+responsibilities I\'ve chosen for myself it seems appropriate to mention
+why I chose the responsibility of bitcoin brunch.
 
 Throughout my life I\'ve found some occasion, though not regularly, to
 publicly express my stong opinions in a way I hope might have an impact.
@@ -26,5 +27,3 @@ do it. And I have done this every Sunday I\'ve been in Miami since I
 started this, shortly after the Miami Crypto Experience.
 
 It has over-delivered. I look forward to more and more!
-
-

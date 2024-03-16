@@ -1,3 +1,5 @@
+This morning as I prepare to venture out into the world and fulfill the responsibilities I've chosen for myself it seems appropriate to mention why I chose the responsibility of bitcoin brunch.
+
 
 Throughout my life I\'ve found some occasion, though not regularly, to
 publicly express my stong opinions in a way I hope might have an impact.

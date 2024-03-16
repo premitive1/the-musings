@@ -1,0 +1,146 @@
+
+*Today I hope to paint for you a picture of at least two incompatible
+realities, and how the denizens in each self-righteously ignore the
+feelings and aspirations of the other group to the detriment of both,
+but for the purpose of highlightning the importance of understanding and
+belief in social dynamics. I welcome you to correct any erroneous
+statements of fact, but otherwise aim to demonstrate no bias towards one
+group or the other. I also warn you of the somewhat chaotic narrative in
+this draft.*
+
+First, a statement of facts. (Please note that I include very few facts
+because the scope of my argument does not require more.)
+
+On January 6, 2021, I watched from Brazil as many thousands of people
+descended onto Washington DC to show support for USA incumbent president
+Donald Trump and protest the reported results of the 2020 presidential
+election. During this protest, at the behest of Donald Trump, a fraction
+of the overall crowd marched on and surrounded the USA Capitol building,
+some of them entering that building.
+
+I imagine this otherwise anodyne presentation of events roils
+sectarians, but I request you suspend your political filters for the
+purposes of understanding my argument because I now boorishly attempt to
+categorize the mainstream perspectives on what those facts mean.
+
+(For posterity unfamiliar with the federal civics of USA in the early
+21st century: we have a triumverate government made up of the executive,
+legislative, and judicial branches; members of the duopolist parties,
+Democrat and Republican, occupy all seats in these branches and compete
+between themselves for overall dominance of the federal government. A
+single sectarian, temporarily ennobled as the president, leads the
+executive branch. The point of contention here involves the filling of
+the seat of president.)
+
+Many Democrats, the sect in control of the legislative branch on January
+6, 2021, believe their candidate, Joe Biden, won the presidential
+election of Novemeber 2020, and that those entering and surrounding the
+Capitol building attempted a coup d\'etat, committing insurrection and
+treason against the USA. They see those people as a threat to the
+country.
+
+Many Republicans, the sect in control of the executive branch on January
+6, 2021, believe participants in a corrupted bureacratic deep-state
+manuevered the election results to steal the win from their candidate,
+Donald Trump. They see those people as a threat to the country.
+
+With these statements out of the way, I finally move towards my own
+argument\--something I want you to think about.
+
+Long before the kerfuffle of the 2020 presidential election, I surmised
+and invited others to participate in a simple thought experiment on the
+extent to which belief informs our society. It went as such: What power
+would they have if one day the person we currently think of as president
+woke up and no one believed the position of president existed anymore?
+
+I never so obviously thought of the transition of power as a practical,
+extant example of the experiment. In my hypothesis everyone simply
+changed their mind, they didn\'t want a president anymore! Now recent
+history provides me a much more appropriate context in which to frame
+the experiment because I no longer ask you to imagine everyone turning
+into an anarchist from one minute to the next because now I only need
+bring up January 20, 2021.
+
+Regardless of whether or not your own understanding of January 6 has you
+more in line with the Democrats or Republicans, on January 20, the date
+on which the occupant of the seat of president changes, it happened, the
+immense and immeasurable executive branch took on a new boss, and things
+continued without a hitch. For many whose pitiful largesse depends
+utterly on the maintenance of our big brother, fundamental change
+represents a risk. For these, believing Trump the president one minute
+and Biden the president the next minute made all the sense in the world,
+and proved no great mental feat, regardless of their otherwise personal
+feelings about either. And perhaps on any other election, most of the
+rest of the country could perform the same mental experiment
+successfully, but due to the conflicting understandings of reality, and
+therefore contradictory beliefs of the two parties, many Democrats saw
+this transition as a narrow win for *democracy,* while many Republicans
+saw democracy lost.
+
+I apologize for having brought up a point of national contention only to
+use it as a springboard for something superficially very different, but
+I can think of few other contemporary issues which so succinctly
+highlight the impact of understanding on our beliefs, and beliefs on our
+actions.
+
+At bitcoin brunch we spend a great deal of time discussing the
+importance of financial literacy. When we use money without an
+understanding of its functions and potential as a tool for storing and
+exchanging value, we have no choice but to play the financial games
+created by others, filtered by their beliefs and asiprations, sometimes
+in spite of our own hopes. Bitcoin, like FIAT money, serves a limited
+role in the lives of those who don\'t understand it. Can you believe
+something has value if you don\'t understand its uses? As with state
+currencies, the rote memorizations of money practices like working and
+paying rent imbue in us cutlural beliefs about money, but not
+necessarily reasonable beliefs.
+
+So here, at the infancy of the bitcoin economy, why do I bring up
+understanding and belief? Because the commitments we make today to the
+future will determine the extent to which the average person in the
+future world will use their money as a tool of empowerment, or as a
+means of sacrificing their time to the unseen machinations of others.
+
+We don\'t need to fight public battles with our perceived enemies to win
+the war for hearts and minds. In fact, if anything, the Democrats and
+Republicans have shown in their decades of hegemony that coercion makes
+more long-term enemies than friends\--sews more division than builds
+bonds. I don\'t want a world where people use bitcoin only because they
+have to. I want the world where people use bitcoin because they
+understand its value, and therefore want to use it. To bring this about
+requires a humility not allowed in any politics. It also requires
+patience, and a willingness to put aside differences to reach common
+understanding.
+
+Can the Democrats and Republicans ever reach a common understanding?
+Certainly not. That goes against their brand. They each need the other
+as a scapegoat for their shortcomings and ulterior motives. Bitcoin, on
+the other hand, doesn\'t *need* any scapegoats. It doesn\'t need the
+dollar supply to inflate, for governments to fund endless wars,
+corporate welfare, or the cantillon effect. To believe in bitcoin as
+better money, we need to understand it. And we need to help others
+understand it because through a collective understanding of better money
+value necessarily grows. When we force people to use what we *simply
+believe* as better money, growth of value follows only by luck, and we
+create a new equivalent to Fiat, in fact we dictate a FIAT of our own.
+
+Make no mistake about what happened in El Salvador. The government
+mandating the use of bitcoin as legal tender makes it a FIAT in that
+country, but we still have the opportunity, through the patience and
+efforts of educating people to understand bitcoin they too can overcome
+the objectification so typical of a wage labor system, and empower
+themselves through the inherent connection of bitcoin with the free
+market of the internet.
+
+Having made this far longer than I should, but saying not nearly as much
+as I wanted, I will try to demonstrate my purpose with a final thought
+experiment, a simple homework assignment. Imagine one day everyone in
+your society believed bitcoin as a better money than government
+currencies. How would that change their behaviors? How could it change
+yours? And if that potential excites you, if you consider it worthwhile
+attempting, would you want to get there any other way than by growing
+the consciousness of your fellow humans to understand WHY bitcoin can
+serve as a better money? The answer to these questions could change the
+world from one minute to the next.
+
+
